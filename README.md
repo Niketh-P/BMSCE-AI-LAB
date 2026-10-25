@@ -1,1 +1,0 @@
-# BMSCE-AI-LAB
